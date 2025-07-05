@@ -4,7 +4,7 @@ ES
 
 Pese a que lo comparto de manera gratuita entre la comunidad, en caso de querer hacer una donación, podéis hacerlo por mi Ko-fi https://ko-fi.com/chibisake
 
-==============================================================================================
+============================================================================================
 
 EN
 
